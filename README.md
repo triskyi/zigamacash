@@ -1,3 +1,3 @@
 # zigamacash
-zigama cash is ucoming project
+zigama cash is upcoming project!!
 "STAY TUNED"
